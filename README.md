@@ -7,3 +7,5 @@ Group Members:
 - William Guadalupe
 - Danilo Blas
 - Victor Chavez 
+
+Si me uni xd 🩹
